@@ -12,3 +12,5 @@ people are lonely, feeling detached in life, atomized as a 'function' in the wor
 what an era.
 
 a human life shall be re-examined and re-defined as it is being re-designed/reshaped.
+
+we are creating recreation. an indispensable part to the society. yes.
