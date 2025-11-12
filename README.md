@@ -7,7 +7,7 @@ data privacy seems not a matter of 'what data' but a matter of 'if there is data
 we extend our memory and creation to digital devices, social network to online platforms. the emotional bonds extend to the bits, and then we claim it is eating us. probably technology is neutral, but humans are not.
 
 
-people are lonely, feeling detached in life, atomized as a 'function' in the workplace; then falsely or mistakenly connected online. you can't rly tell what is real and what is fake anymore. probably only that loneliness either in the crowd or alone is real.
+people are lonely, feeling detached in life, atomized as a 'function' in the workplace; then falsely or mistakenly connected online. you can't rly tell what is real and what is fake anymore. probably only that loneliness either in the crowd or alone is real. that ml curated precision is irreplacably stimulating and satisfying.
 
 what an era.
 
