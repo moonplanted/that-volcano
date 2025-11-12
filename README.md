@@ -4,8 +4,11 @@ the local. the friend circle, the acquaintance circle, the strangers circle. you
 
 data privacy seems not a matter of 'what data' but a matter of 'if there is data privacy at all'.
 
-also people are lonely, feeling detached in life, falsely or mistakenly connected online. you can't rly tell what is real and what is fake anymore.
+we extend our memory and creation to digital devices, social network to online platforms. the emotional bonds extend to the bits, and then we claim it is eating us. probably technology is neutral, but humans are not.
+
+
+people are lonely, feeling detached in life, atomized as a 'function' in the workplace; then falsely or mistakenly connected online. you can't rly tell what is real and what is fake anymore. probably only that loneliness either in the crowd or alone is real.
 
 what an era.
 
-a human life shall be re-examined and re-defined.
+a human life shall be re-examined and re-defined as it is being re-designed/reshaped.
