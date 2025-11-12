@@ -13,4 +13,4 @@ what an era.
 
 a human life shall be re-examined and re-defined as it is being re-designed/reshaped.
 
-we are creating recreation. an indispensable part to the society. yes.
+we are creating recreation. an indispensable part to the society. yes. the companies opt you in automatically. btw, who are we? who are you?
